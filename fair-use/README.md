@@ -1,0 +1,1 @@
+These images are used under "fair use", which means they are used to refer the original works or brands they represent. We do not claim any ownership of these images, and they are not included only for reference purposes.
